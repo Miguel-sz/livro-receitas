@@ -2,6 +2,6 @@
 
 Olá! Bem vindo ao meu livro de receitas. :wave:
 
-- O melhor Brownie do mundo! :happy:
+- O melhor Brownie do mundo! 
 
   
